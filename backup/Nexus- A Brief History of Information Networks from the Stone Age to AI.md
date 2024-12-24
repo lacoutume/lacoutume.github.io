@@ -5,7 +5,7 @@
 【#哈拉瑞新作震撼来袭#】🌟📚
 
 **Nexus: A Brief History of Information Networks from the Stone Age to AI** 
-[Amazon Book Line](https://amzn.to/4iP6cYg)
+[Amazon Book Link](https://amzn.to/4iP6cYg)
 
 《人类大历史》作者哈拉瑞的新作，带你深入探讨信息网络的奥秘！🌐 从石器时代到AI时代，信息网络如何塑造了我们的世界？又为何让我们陷入存在危机？快来一起揭秘！
 
