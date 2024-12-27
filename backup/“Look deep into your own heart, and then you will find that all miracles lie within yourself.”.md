@@ -10,9 +10,9 @@
 
 ----------------------------------------------------------------------------------------
 
-![a61351310f372075](https://github.com/user-attachments/assets/dfd10461-e221-4053-9b6b-d6b7de6729a4)
 [Slowly 慢生活 (Github)](https://lacoutume.github.io/)
 [Slowly 慢生活 (小紅書)](https://www.xiaohongshu.com/user/profile/6255629e000000000d0325e1)
+![知](https://photo.sibnet.ru/upload/img/1735306705941494610.jpg =16x16)
 [知乎](https://www.zhihu.com/people/21-22-91-42-79)
 [哲學是為了修理屋簷 BiLi](https://space.bilibili.com/1703497042/?spm_id_from=333.999.0.0)
 [YouTube](https://www.youtube.com/@zulallamuahai/videos)
