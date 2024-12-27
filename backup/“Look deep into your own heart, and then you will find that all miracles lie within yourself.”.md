@@ -10,6 +10,7 @@
 
 ----------------------------------------------------------------------------------------
 
+![a61351310f372075](https://github.com/user-attachments/assets/dfd10461-e221-4053-9b6b-d6b7de6729a4)
 [Slowly 慢生活 (Github)](https://lacoutume.github.io/)
 [Slowly 慢生活 (小紅書)](https://www.xiaohongshu.com/user/profile/6255629e000000000d0325e1)
 [知乎](https://www.zhihu.com/people/21-22-91-42-79)
