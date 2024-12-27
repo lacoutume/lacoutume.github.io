@@ -12,7 +12,6 @@
 
 [Slowly 慢生活 (Github)](https://lacoutume.github.io/)
 [Slowly 慢生活 (小紅書)](https://www.xiaohongshu.com/user/profile/6255629e000000000d0325e1)
-![知](https://photo.sibnet.ru/upload/img/1735306705941494610.jpg =16x16)
-[知乎](https://www.zhihu.com/people/21-22-91-42-79)
+<img src="https://photo.sibnet.ru/upload/imggreat/1735306716721494611.jpg" width="20" height="20"> [Chang YH](https://www.zhihu.com/people/21-22-91-42-79)
 [哲學是為了修理屋簷 BiLi](https://space.bilibili.com/1703497042/?spm_id_from=333.999.0.0)
 [YouTube](https://www.youtube.com/@zulallamuahai/videos)
