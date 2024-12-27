@@ -14,4 +14,4 @@
 [Slowly 慢生活 (小紅書)](https://www.xiaohongshu.com/user/profile/6255629e000000000d0325e1)
 [知乎](https://www.zhihu.com/people/21-22-91-42-79)
 [哲學是為了修理屋簷 BiLi](https://space.bilibili.com/1703497042/?spm_id_from=333.999.0.0)
-[YouTube](https://www.youtube.com/@zulallamuahai)
+[YouTube](https://www.youtube.com/@zulallamuahai/videos)
